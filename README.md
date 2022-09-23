@@ -1,10 +1,10 @@
 # Weekend
 
 # Friday
-— Freshens for lunch
-— Work on Immortal Snail game
-— Work in the Evergreen office
 
 # Saturday
 
 # Sunday
+— Go to church
+— Work in the Evergreen Office
+— Work on Immortal Snail game
